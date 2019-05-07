@@ -10,3 +10,4 @@ although it was so hard to finish by myself, but I believe I ca be the person I 
 everythig that wanna me die make me wanna fly.
 
 
+embarrassing
